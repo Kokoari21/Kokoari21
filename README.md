@@ -1,2 +1,2 @@
-
-https://Kokoari21.github.io/AnonymousRedirect/anonim.html?url=https://whatsmyreferer.com/
+Pencet 
+https://sbfull.com/d/0fhxwlfn597j.html
